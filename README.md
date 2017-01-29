@@ -1,1 +1,0 @@
-# kogyoukei.github.io
